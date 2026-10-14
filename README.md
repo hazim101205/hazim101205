@@ -1,4 +1,4 @@
-# Hi 👋, I'm Muhammad Hazim Bin Zulkanain
+# Hi 👋, I'm Muhammad Hazim
 
 ### A student from University of Technology Malaysia
 
